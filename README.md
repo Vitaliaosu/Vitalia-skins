@@ -1,7 +1,5 @@
 # *Every single one of Vitalia's Skins.*
 
-[**Link**](https://www.youtube.com/)
-
 Helltaker [WIP] | Multiple Versions
 ![]()
 Work in progress skin still be worked on 17/8-2020.
