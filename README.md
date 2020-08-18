@@ -1,4 +1,5 @@
 # **Every single one of Vitalia's Skins.**
+NOTE: Not every skin is made by me.
 This will be kept updated.
 
 - **Discord:** Vitalia#9135
