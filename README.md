@@ -1,4 +1,4 @@
-# *Every single one of Vitalia's Skins.*
+# **Every single one of Vitalia's Skins.**
 This will be kept updated.
 
 Discord: Vitalia#9135 .
