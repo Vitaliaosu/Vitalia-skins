@@ -1,9 +1,9 @@
 # *Every single one of Vitalia's Skins.*
 This will be kept updated.
 
-Discord: Vitalia#9135
-Twitter: @Vitalia_xo
-Twitch: [**Link**](https://www.twitch.tv/vitaliaosu)
+Discord: Vitalia#9135;
+Twitter: @Vitalia_xo;
+Twitch: [**Link**](https://www.twitch.tv/vitaliaosu);
 
 # Helltaker [WIP] | Multiple Versions
 ![]()
