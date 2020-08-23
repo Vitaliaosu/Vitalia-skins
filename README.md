@@ -10,6 +10,10 @@ This will be kept updated.
 ![]()
 Work in progress skin still be worked on 17/8-2020.
 
+## Aristia Edit
+![](https://audaciadesign.s-ul.eu/1XS2Ht3l)
+[**Download**](https://drive.google.com/file/d/1fMzmVstw1k8szlVTZwrI9W0H-Y2dj5Me/view?usp=drivesdk)
+
 ## Azr8 Edit
 ![](https://audaciadesign.s-ul.eu/WPJqrBmu)
 [**Download**](https://drive.google.com/file/d/1D-IudQGx3xGcc7dhKQrnzSRQBh2mXVYA/view?usp=drivesdk)
