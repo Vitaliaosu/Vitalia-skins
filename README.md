@@ -6,9 +6,6 @@ This will be kept updated.
 - **Twitter:** @Vitalia_xo
 - **Twitch:** [*Link*](https://www.twitch.tv/vitaliaosu)
 
-## Helltaker [WIP] | Multiple Versions
-![]()
-Work in progress skin still be worked on 17/8-2020.
 
 ## Aristia Edit
 ![](https://audaciadesign.s-ul.eu/1XS2Ht3l)
