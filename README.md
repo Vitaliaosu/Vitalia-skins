@@ -23,6 +23,6 @@ This will be kept updated.
 ![](https://audaciadesign.s-ul.eu/iCZppN3g)
 [**Download**](https://drive.google.com/file/d/1bQbEllLWRBqE8KmWWQ-OQcjpk8I1HbqK/view?usp=drivesdk)
 
-## Sagiri Blue Angel
+## Sagiri Blue Angel Edit
 ![](https://audaciadesign.s-ul.eu/fsz7zIIB)
 [**Download**](https://drive.google.com/file/d/1G3w_YgUc7BvdmiUGzQ9lkqu_upo4qTkI/view?usp=drivesdk)
