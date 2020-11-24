@@ -3,8 +3,8 @@ NOTE: Not every skin is made by me.
 This will be kept updated.
 
 - **Discord:** Vitalia#9135
-- **Twitter:** @Vitalia_xo
-- **Twitch:** [*Link*](https://www.twitch.tv/vitaliaosu)
+- **Twitter:** @vitaliaosu
+- **Twitch:** [*https://www.twitch.tv/vitaliaosu*](https://www.twitch.tv/vitaliaosu)
 
 
 ## Aristia Edit
