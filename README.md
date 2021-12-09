@@ -1,4 +1,4 @@
-# **Every single one of Vitalia's Skins.**
+# **Every single one of Vitalia's skins.**
 NOTE: Not every skin is made by me.
 This will be kept updated.
 
