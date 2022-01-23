@@ -9,11 +9,11 @@ This will be kept updated.
 
 ## reOwOtuna (MK)
 ![](https://i.imgur.com/1KmpeB3.png)
-[**Download**](https://drive.google.com/file/d/1vTnA9qCLGzWAt8OrYoXDcD-IIBsLR_ZA/view?usp=sharing)
+[**Download**](https://audaciadesign.s-ul.eu/Y3PP2OIJ)
 
 ## Pollev5
 ![](https://i.imgur.com/lvDLq8I.png)
-[**Download**](https://drive.google.com/file/d/19vA6yNG3inpZQ3KmpfYSNJ1XmqxdoRYE/view?usp=sharing)
+[**Download**](https://audaciadesign.s-ul.eu/H7Sk6fFK)
 
 ## Mrekk Edit (Multiple Versions)
 ![](https://i.imgur.com/xQUOjZP.png)
@@ -21,20 +21,20 @@ This will be kept updated.
 
 ## Aristia Edit
 ![](https://audaciadesign.s-ul.eu/1XS2Ht3l)
-[**Download**](https://drive.google.com/file/d/1fMzmVstw1k8szlVTZwrI9W0H-Y2dj5Me/view?usp=drivesdk)
+[**Download**](https://audaciadesign.s-ul.eu/r8Ntrg4v)
 
 ## Azr8 Edit
 ![](https://audaciadesign.s-ul.eu/WPJqrBmu)
-[**Download**](https://drive.google.com/file/d/1D-IudQGx3xGcc7dhKQrnzSRQBh2mXVYA/view?usp=drivesdk)
+[**Download**](https://audaciadesign.s-ul.eu/T3tjoS0a)
 
 ## Boop Edit
 ![](https://audaciadesign.s-ul.eu/DVUgAbHo)
-[**Download**](https://drive.google.com/file/d/1bQbEllLWRBqE8KmWWQ-OQcjpk8I1HbqK/view?usp=drivesdk)
+[**Download**](https://audaciadesign.s-ul.eu/6DV2bgK0)
 
 ## Doki Edit
 ![](https://audaciadesign.s-ul.eu/iCZppN3g)
-[**Download**](https://drive.google.com/file/d/1bQbEllLWRBqE8KmWWQ-OQcjpk8I1HbqK/view?usp=drivesdk)
+[**Download**](https://audaciadesign.s-ul.eu/Z61Nj2D7)
 
 ## Sagiri Blue Angel Edit
 ![](https://audaciadesign.s-ul.eu/fsz7zIIB)
-[**Download**](https://drive.google.com/file/d/1G3w_YgUc7BvdmiUGzQ9lkqu_upo4qTkI/view?usp=drivesdk)
+[**Download**](https://audaciadesign.s-ul.eu/fCUTXGyY)
