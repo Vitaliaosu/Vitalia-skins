@@ -6,6 +6,15 @@ This will be kept updated.
 - **Twitter:** @vitaliaosu
 - **Twitch:** [*https://www.twitch.tv/vitaliaosu*](https://www.twitch.tv/vitaliaosu)
 
+
+## reOwOtuna (MK)
+![](placeholde)
+[**Download**](https://drive.google.com/file/d/1vTnA9qCLGzWAt8OrYoXDcD-IIBsLR_ZA/view?usp=sharing)
+
+## Pollev5
+![](https://i.imgur.com/xQUOjZP.png)
+[**Download**](https://drive.google.com/file/d/19vA6yNG3inpZQ3KmpfYSNJ1XmqxdoRYE/view?usp=sharing)
+
 ## Mrekk Edit (Multiple Versions)
 ![](https://i.imgur.com/xQUOjZP.png)
 [**Download**](https://drive.google.com/drive/folders/1s4eCkOPYG3AC2OcZd5bTMNQ7FWiAwSIb?usp=sharing)
