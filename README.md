@@ -11,7 +11,7 @@ This will be kept updated.
 ![](https://i.imgur.com/1KmpeB3.png)
 [**Download**](https://audaciadesign.s-ul.eu/Y3PP2OIJ)
 
-## rafis hddt (amni skin)
+## rafis hddt (zakura's amni skin)
 ![](https://audaciadesign.s-ul.eu/8aRHnCBY)
 [**Download**](https://audaciadesign.s-ul.eu/2d5KdNM2)
 
